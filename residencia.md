@@ -1,0 +1,1 @@
+Minha motivação é impulsionada pelo desejo de crescimento profissional e minha expectativa é aprimorar meus conhecimentos e contribuir ativamente para a resolução de desafios, tanto no nível técnico quanto no nível da equipe, ao longo da Residência de Desenvolvimento de Software.
