@@ -1,4 +1,4 @@
-Olá colegas de curso!
+Olá a todos! É um prazer estar aqui para compartilhar um pouco sobre mim.
 
 Meu nome é Lorena, sou graduada em Ciência da Computação pela UESB.
 
